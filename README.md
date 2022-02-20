@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+# Halo Semua
+Perkenalkan nama saya **Harlin Feby Karnita**.\
+Saya seorang **Mahasiswa** yang bergabung di [Dicoding]
+Saya mengikuti studi independent program kampus merdeka
